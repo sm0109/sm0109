@@ -13,5 +13,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about ...Anything
 - 📫 How to reach me: ... www.linkedin.com/in/saimanohar0109
 - 😄 Pronouns: ...He
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: ...I am half finish
 -->
